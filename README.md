@@ -1,0 +1,4 @@
+- 👋 Sup I'm Frantisek Tomas or midget because i am very tall ;).
+- 👀 I’m interested to how websites work, how to make them and how to design them.
+- 🌱 I’m currently learning HTML CSS and JS.
+- 📫 How to reach me on dicsord midget#7761
